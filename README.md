@@ -1,7 +1,7 @@
 Online Blogging Always in Popularity.  For this Education.co.in took to the Inn Market. being not one of public social or not much of private. This takes to Inns. Checking in to hotels is no time sensitive. To meetings appointments at times parking.  When checked in leaving Sensitive Stationary a Puzzle. Where is it? Is it in the Transport? 
 Conversations of all come about when checking in or checking out.  Im one that has put a lot of monetary into the hotel business. Yet ive yet to finish many of a conversation the way i express.
 Video Chat is great however backdrops agonizing. 
-Sometimes the bligging moments have got to seem surreal.
+Sometimes the blogging moments have got to seem surreal.
 This is to take to BlogInn 
 Fun
 Health Efficient
