@@ -11,3 +11,8 @@ At Hands Reach when a Moment exist such as Lock ins or inclements
 Realism Expressionism In-Thought Design
 Most importantly Art Sufficient
 g.Taylor says "Prices is . Surely I am going to Check In and Check Out. Not caring if Ones ever decide to commune". 
+RETAIL IDLE 
+SAFE-KEEPING OF ABOUT TEN OTHER RETAILS
+AVERAGING A PAY BUNDLE 
+DECISION TO BUNDLE WITH AT TIMES RUNNING OF TWO RETAILS OR GROUP ALL RETAILSON SAME BILLING CYCLE
+ITEMS IN RETAIL HAVE NOT SOLD MUCH TO INTAKE REVENUE TO OUTTAKE REVENUE TO ELECTRONIC BILLING
